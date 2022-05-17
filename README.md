@@ -1,1 +1,1 @@
-# IT-Entrepreneurship-Module-Integrated-Projec
+# IT-Entrepreneurship-Module-Integrated-Project
